@@ -6,4 +6,5 @@ PROPOSED DJ's
 - Morgan
 
 FOOD ITEMS
+- Please bring homemade food from your family's secret formulas
 
