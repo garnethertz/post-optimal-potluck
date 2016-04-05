@@ -10,4 +10,4 @@ LIVE ENTERTAINMENT
 
 FOOD ITEMS
 - Please bring homemade food from your family's secret formulas
-
+-Cookies yes
