@@ -11,4 +11,4 @@ LIVE ENTERTAINMENT
 
 FOOD ITEMS
 - Please bring homemade food from your family's secret formulas
-
+- I don't know what I'm bringing yet. Macaroons if things work out
